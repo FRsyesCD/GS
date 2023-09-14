@@ -1,1 +1,11 @@
-# GS
+![1](https://github.com/FRsyesCD/GS/assets/61872358/4964e0eb-6444-4be6-98b1-e6ea2da4d5ab)
+![2](https://github.com/FRsyesCD/GS/assets/61872358/3cc49a66-5c57-4c23-857a-20dc3a0d6b7d)
+![3](https://github.com/FRsyesCD/GS/assets/61872358/c884bdf0-36c4-42b8-b30b-afbf90f4de9d)
+![4](https://github.com/FRsyesCD/GS/assets/61872358/5d0a7f99-f3a8-4ec6-b1c7-03118aace829)
+![5](https://github.com/FRsyesCD/GS/assets/61872358/80e9a599-279a-401a-99c6-e84ea77ec2e8)
+![6](https://github.com/FRsyesCD/GS/assets/61872358/da6f4984-b902-4aae-b5d1-4ec71c7f0024)
+![7](https://github.com/FRsyesCD/GS/assets/61872358/83fe8d3b-7345-493c-86f9-c1e00d0cc42a)
+![8](https://github.com/FRsyesCD/GS/assets/61872358/d81ac8d0-df68-490b-9f2d-aa3a609eb87d)
+![9](https://github.com/FRsyesCD/GS/assets/61872358/2d7b298c-b311-4cc5-8dae-f44b0054a50e)
+![10](https://github.com/FRsyesCD/GS/assets/61872358/feb10480-75f7-4837-94a2-adaacae8ae7e)
+![prototype](https://github.com/FRsyesCD/GS/assets/61872358/d81833f5-bbb8-4d92-93ea-c680dd880f92)
